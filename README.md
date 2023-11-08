@@ -39,7 +39,7 @@
 
 💬 Ask me about **AWS Docker Jenkins Linux Terraform Kubernetes**
 
-📫 Reach out to me at **gaurishirkande11111@gmail.com**
+📫 Reach out to me at **azfaralam440@gmail.com**
 
 </div>
 
